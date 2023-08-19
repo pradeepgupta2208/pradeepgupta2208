@@ -7,8 +7,7 @@
 
 - 📫 How to reach me **pradeepgupta2208@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1r5puZ7nBjWn-cE13Oe_gkjGWZAyQP-y8/edit](https://docs.google.com/document/d/1r5puZ7nBjWn-cE13Oe_gkjGWZAyQP-y8/edit)
-
+- 📄 Know about my experiences https://docs.google.com/document/d/1_0xQy2TgK0IvF0JFrA8Fh6mNX06CGUJ_eHjCqJ0gFRs/edit?usp=sharing
 - ⚡ Fun fact **I am very Shy**
 
 <h3 align="left">Connect with me:</h3>
